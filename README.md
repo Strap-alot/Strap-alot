@@ -1,0 +1,5 @@
+- 👋  I’m @Strap-alot
+- 👀 I’m interested in: god and 💸
+- 📫 How to reach me: u dont need to
+- 😄 Pronouns: himothy
+- ⚡ Fun fact: chasing that💰
